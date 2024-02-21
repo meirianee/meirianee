@@ -1,0 +1,4 @@
+- 👋 Oi,meu nome é Meiriane Clara Szadura
+- 👀 Tenho 16 anos, e dia 07 de março faço 17 anos
+- 🌱 Eu sou Brasileira, e nasci na cidade Foz do Iguaçu - Paraná
+-  Gosto de ler, assistir filmes/séries, andar de bicicleta e viajar
